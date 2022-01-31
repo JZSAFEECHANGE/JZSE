@@ -1,0 +1,2 @@
+# JZSE
+JZ&amp;SAFEECHANGE en abrégé JZSE est une entreprise immobilière relative à l’achat, la vente, la location et la construction des maisons. C’est de même une structure d’investissement.Qui sommes nous ?JZSE est une structure africaine, précisément basée en Côte d’Ivoire. Elle a été créée par de jeunes entrepreneurs ivoiriens cherchant à promouvoir le bien-être des hommes, ensuite inciter les jeunes à l’autonomisation financière à travers la nouvelle révolution de la Blockchain et les cryptomonnaies. 
